@@ -43,7 +43,7 @@
   las posibilidades de venta.
 
 
-# 🎉Felicidades haz creado tu primer **NTF** 🚀🚀
+# 🎉Felicidades has creado tu primer **NTF** 🚀🚀
 
 
 //Fuete bit2me.com
